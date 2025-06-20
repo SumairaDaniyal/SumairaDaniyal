@@ -2,7 +2,7 @@
 
 🎨 **Creative | Detail-Oriented | Responsive Design Enthusiast**
 
-📍 Location: Gorakhpur, IN  
+📍 Location: Karachi, PK  
 📧 Email: [sumairadaniyal8@gmail.com](mailto:sumairadaniyal8@gmail.com)  
 📞 Phone: +92-3334088951  
 🔗 [LinkedIn](https://www.linkedin.com/in/sumaira-daniyal-517a66216/)  
